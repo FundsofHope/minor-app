@@ -1,1 +1,0 @@
-###FundsofHope App - Android
